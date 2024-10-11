@@ -1,6 +1,6 @@
 # 🌟 Kashish Desai | Full-Stack Developer
 
-**Milpitas, CA | desai.kashi@northeastern.edu**
+**Boston, MA | desai.kashi@northeastern.edu**
 
 ---
 
